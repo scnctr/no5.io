@@ -1,2 +1,0 @@
-# quimica.github.io
-Química
